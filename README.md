@@ -1,4 +1,4 @@
-## boas vindas ao meu perfil 💙
+## Bas vindas ao meu perfil 💙
 
 meu nome é stefany
 
